@@ -1,2 +1,0 @@
-# GHBW-KUSHG
-Kushagramati
